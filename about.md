@@ -6,6 +6,6 @@ because im evil.
 
 im an adult and my kinlist is just full of men with mental illnesses.
 anyways, thats just the gist of it. i'll think of something better in the meantime.
-also, i'm taken 🖤 blehblehhh
+also, i'm taken.....by DEATH!!!! 🖤 blehblehhh
 
 thank you.
